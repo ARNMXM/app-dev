@@ -10,7 +10,7 @@ Game of Thrones is an American fantasy drama television series created by David 
 Game of Thrones is roughly based on the storylines of the A Song of Ice and Fire book series by George R. R. Martin, set in the fictional Seven Kingdoms of Westeros and the continent of Essos. The series follows several simultaneous plotlines. The first story arc follows a war of succession among competing claimants for control of the Iron Throne of the Seven Kingdoms, with other noble families fighting for independence from the throne. The second concerns the actions of the exiled scion to reclaim the throne; the third chronicles the threat of the impending winter, as well as the legendary creatures and fierce peoples of the North.
 
 *Masahista*
-
+ 
 "In Manila, 20-year-old Iliac and his hot, young male co-workers give massage and a whole lot more to their gay clientele. 
 ![The Masseur](masahista2.jpg)
 
